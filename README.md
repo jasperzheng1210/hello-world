@@ -1,2 +1,3 @@
 # hello-world
 A new journey begins...
+A brand new Casper who is on the journey of connecting the dots and forging the meaning of life.
